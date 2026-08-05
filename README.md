@@ -4,7 +4,7 @@
 <img width="736" height="414" alt="1000138564" src="https://github.com/user-attachments/assets/0f1fef9b-8a8a-4a3f-90f1-7911b712dbcc" />
 
 <p align="center"> 
-$${\textsf{\color{#000000} }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#f0bc6e}straw}}$$
+$${\textsf{\color{#000000} }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#f0bc6e}atabook}}$$
 <a href="https://reveried.atabook.org/">✿</a> $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#f0bc6e}Pronouns}}$$
 <a href="https://pronouns.cc/@A1k0sT4r">✿</a> </p>
 
