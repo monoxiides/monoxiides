@@ -17,4 +17,4 @@ $${\textsf{\color{#000000} }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\
 
 [PT Fashion](https://github.com/pt-fashion) as Eunoia (Frozen Soul (Dream Game) )
 
-[Ship Town] (https://github.com/ship-town) as No1 Mizisua shippers (ZOMST) 
+[Ship Town](https://github.com/ship-town) as No1 Mizisua shippers (ZOMST) 
