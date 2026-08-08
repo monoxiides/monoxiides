@@ -1,16 +1,30 @@
-<img width="736" height="414" alt="1000138536" src="https://github.com/user-attachments/assets/cbdd0225-14ad-418d-abcf-b16f714ba72c" />
-<img width="3712" height="720" alt="1000136416" src="https://github.com/user-attachments/assets/a13e252c-291f-47e5-9413-8ff9673a0190" />
-<img width="661" height="377" alt="1000138554" src="https://github.com/user-attachments/assets/358281ef-51ed-4892-9f05-ef780a2d8d5d" />
-<img width="736" height="414" alt="1000138564" src="https://github.com/user-attachments/assets/0f1fef9b-8a8a-4a3f-90f1-7911b712dbcc" />
+ <img align="center" src="https://file.garden/ae9JqwfELjoYT2Gv/Untitled111_20260808211612.png" alt="border" width="400%"/>
 
-<p align="center"> 
-$${\textsf{\color{#000000} }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#f0bc6e}atabook}}$$
-<a href="https://reveried.atabook.org/">✿</a> $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#f0bc6e}Pronouns}}$$
-<a href="https://pronouns.cc/@A1k0sT4r">✿</a> </p>
+ <img align="left" src="https://file.garden/ae9JqwfELjoYT2Gv/Untitled111_20260808211521.png" alt="meow" width="40%"/>
 
-<p align="center"> $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#cf9a4a}GitHub "read me" made by Toast}}$$
-<a href="https://github.com/Sugar-coatedtoast">Click me!</a> </p>
+ ㅤ
+ <img align="center" src="https://file.garden/ae9JqwfELjoYT2Gv/Untitled111_20260808212419.png" alt="banner" width="55%"/>
+ 
+ㅤ
+ㅤㅤㅤ<img src="https://i.postimg.cc/gkX7C8vS/7kef4i.gif" alt="pixel" width=40 />  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Libertinus+Serif&pause=1000&color=a9a1b3&width=250&lines=Would've+been+cute;Would+look+just+like+you)](https://git.io/typing-svg) ‎  <img src= "https://i.postimg.cc/hPkYcvsS/u1huo2.gif" alt="pixel" width=40 />
 
+ㅤㅤ
+ㅤwip uhmm c*h freely w2i PLSSS mostly afk/offtb slow or no resp someone nonimate me as the eunoia pls.. /j 
+
+ㅤ<table>
+  ㅤ<tr>
+    ㅤ<td>
+      ㅤ<img align="left" src="https://i.postimg.cc/kG54CMc2/red.gif" alt="nya"/>  ˚ִִ 𓏼 ͜͜✚ㅤ I'll wait here tomorrow, outside your door
+    ㅤ</td>
+  ㅤ</tr>
+ㅤ</table>
+
+ㅤ
+
+ㅤ<img align="center" src="https://file.garden/ae9JqwfELjoYT2Gv/Untitled111_20260808212419.png" alt="banner" width="55%"/> 
+
+ <img align="center" src="https://file.garden/ae9JqwfELjoYT2Gv/Untitled111_0000-06-25_20260808215531.png" alt="border" width="400%"/>
+ 
 ### Titles:
 
 [PT Contributers](https://github.com/pt-contributers) as Intern (Animal Hospital)
