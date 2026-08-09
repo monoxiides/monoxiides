@@ -31,6 +31,6 @@
 
 [PT Fashion](https://github.com/pt-fashion) as Eunoia (Frozen Soul (Dream Game) )
 
-[Ship Town](https://github.com/ship-town) as No1 Mizisua shippers (ZOMST) 
+[Ship Town](https://github.com/ship-town) Pt's Sua as top Mizisua shippers (ZOMST)
 
 [PT Walk of fame](https://github.com/pt-walk-of-fame) as Online 24/7
