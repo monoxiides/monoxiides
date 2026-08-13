@@ -36,3 +36,5 @@
 [PT Walk of fame](https://github.com/pt-walk-of-fame) as Online 24/7
 
 [Folk town](https://github.com/FOLKTOWN) as Eggchan From Unstable Universe
+
+[Cosplay town](https://github.com/cosplaytown) as Eggchan From Unstable Universe
