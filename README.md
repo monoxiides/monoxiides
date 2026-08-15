@@ -1,7 +1,7 @@
 <img width="595" height="768" alt="image" src="https://github.com/user-attachments/assets/91c324da-5bdb-4513-a34f-2d270ebfef74" />
 
 art by me.. heh.. 
-BIGGEST MUNITY TIDALMACE AND TORCHFLOWER FAN 
+munity, tidalmace, patchbreakers and torchflower duo fan... heh..
  
 ### Titles:
 
