@@ -2,6 +2,16 @@
 
 art by me.. heh.. 
 munity, tidalmace, patchbreakers and torchflower duo fan... heh..
+
+iwc or iwec all times i have moodswings 
+
+DNCOVER DNCOVER PLEASE PLEASE I SEEN SO MANY PEOPLE COVERING ME I JUST HATE IT 
+dncopy ask for inspo, ^^ most of the ponies i use are the ones i put in my effort/time into or gift 4 people 
+
+i rarely accept friend rqs, if i do and we barely talked i will remove you 
+
+
+mostly w chemicalshot ok? ok. 
  
 ### Titles:
 
