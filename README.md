@@ -16,7 +16,7 @@ mostly w chemicalshot ok? ok.
  
 ### Titles:
 
-[PT Contributers](https://github.com/pt-contributers) as Intern (Animal Hospital)
+dont associate me with pt contributes and cosplayers. like at all please 
 
 [PT Fashion](https://github.com/pt-fashion) as Eunoia (Frozen Soul (Dream Game) )
 
