@@ -13,6 +13,8 @@ i rarely accept friend rqs, if i do and we barely talked i will remove you
 
 
 mostly w chemicalshot ok? ok. 
+
+20+ iwec or dniuid. im a minor 
  
 ### Titles:
 
